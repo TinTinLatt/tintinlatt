@@ -1,1 +1,0 @@
-# tintinlatt.github.io
